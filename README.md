@@ -1,0 +1,1 @@
+# kendisi-kadar-kuvvet-alma
